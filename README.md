@@ -1,17 +1,13 @@
 # **Bilgilendirme**
 
-> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Guard Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
+> **`Hepinize Merhaba Dostlarım Eskiden Kullanmış Olduğum V12 Discord Koruma Botunu Sizlere Paylaşıyorum. V12 Desteği Bitene Kadar Güzel Bir Şekilde İşinizi Görecektir.`**
 
-> [Videoya Gitmek İçin Tıkla](https://youtu.be/gviWv0rhzq8) 
+> [WindarM BOT](https://discord.gg/dKESRJ2XTY)
 
-> [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
+> 📊▸ Sponsorluk,reklam ve BOT Yaptırmak için;
 
-> 💳▸ Desteklemek için;
+> 📊▸ E-Posta adresi : dm@windarm.web.tr
 
-> 💳▸ İninal barkod : 4 092180334644
+> 🎮▸ Discord Nick : WindarM#5117
 
-> 📊▸ Sponsorluk ve reklam için;
-
-> 📊▸ E-Posta adresi : kantasmehmetcan12@gmail.com
-
-> 🎮▸ Discord Nick : Kobs#0001
+> 📝▸ Discord Botu Yaptırmak İçin Discord NİCK Üzerinden Ulaşınız.
